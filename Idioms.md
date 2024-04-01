@@ -56,4 +56,9 @@
 54. give someone attitude
 55. have skin in the game
 56. that's a bad hill to die on
-57. 
+57. hard nosed
+58. night cap
+59. I'll see myself out
+60. feeding the rat
+61. it's water under the bridge
+62. pass the buck
