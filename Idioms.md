@@ -65,3 +65,7 @@
 63. hang ten
 64. raising the roof
 65. I am winchester
+66. Run the gamut
+67. Wet your whistle
+68. To burn daylight
+
