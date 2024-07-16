@@ -63,9 +63,11 @@
 61. it's water under the bridge
 62. pass the buck
 63. hang ten
-64. raising the roof
+64. Raising the roof
 65. I am winchester
 66. Run the gamut
 67. Wet your whistle
 68. To burn daylight
+69. To Fly off the handle
+70. Be gunning for someone
 
