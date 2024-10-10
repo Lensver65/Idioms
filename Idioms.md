@@ -70,4 +70,14 @@
 68. To burn daylight
 69. To Fly off the handle
 70. Be gunning for someone
+71. Burn the midnight oil
+72. Clinging on (to) stg, smby
+73. Homebody
+74. (stg) went south
+75. Handle your liquor
+76. in for a penny / in for a pound
+77. Pull my finger out
+78. Jazz hands
+79. Twist my arms
+80. Fill the boots
 
