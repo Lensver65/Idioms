@@ -80,4 +80,7 @@
 78. Jazz hands
 79. Twist my arms
 80. Fill the boots
+81. Nervous as a cat
+82. Rain on someone's parade
+83. Got to hit the head
 
