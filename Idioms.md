@@ -84,3 +84,5 @@
 82. Rain on someone's parade
 83. Got to hit the head
 84. Ten-hut
+85. Cool your boots
+86. Hear (straight) from the horse's mouth
