@@ -7,84 +7,87 @@
 5. get big head
 6. take a leak
 7. shit you not
-8. spill the beans
+8. [spill the beans](https://www.theidioms.com/spill-the-beans/#google_vignette)
 9. let me cut to the liver
-10. pipe down
+10. [pipe down](https://www.theidioms.com/pipe-down/)
 11. to spend a penny
 12. blabbermouth
-13. hear (stg) through/ on the grapewine
-14. hit the hay
-15. have a rain check
-16. ice skating uphill
-17. rubber stamp
-18. make hay while the suns shines
-19. rooting for you
-20. monkey's paw
-21. to keep your eyes peeled
-22. I'll see myself out
-23. hook (rod), line and sinker
-24. to pig out
-25. blowing a raspberry
-26. to speak off the cuff
-27. swashbukling
-28. take a rain check
-29. is down for the count
-30. to pigeonhole
-31. keep an eye out
-32. heap/s
-33. dress down
-34. smoking banana
-35. I am on the edge of my seat
-36. shake a leg
-37. pony up
-38. mustn't grumble
-39. off my tits
-40. is on cloud nine
-41. keep someone on their toes
-42. go tits up
-43. spill the beans
-44. I am rooting for you
-45. gonna get out of your hair
-46. freeballing
-47. have itchy feet
-48. shirt coocking
-49. skinny dip
-50. take five
-51. make a dent in something
-52. to excel in something
-53. gun shy
-54. give someone attitude
-55. have skin in the game
-56. that's a bad hill to die on
-57. hard nosed
-58. night cap
-59. I'll see myself out
-60. feeding the rat
-61. it's water under the bridge
-62. pass the buck
-63. hang ten
-64. Raising the roof
-65. I am winchester
-66. Run the gamut
-67. Wet your whistle
-68. To burn daylight
-69. To Fly off the handle
-70. Be gunning for someone
-71. Burn the midnight oil
-72. Clinging on (to) stg, smby
-73. Homebody
-74. (stg) went south
-75. Handle your liquor
-76. in for a penny / in for a pound
-77. Pull my finger out
-78. Jazz hands
-79. Twist my arms
-80. Fill the boots
-81. Nervous as a cat
-82. Rain on someone's parade
-83. Got to hit the head
-84. Ten-hut
-85. Cool your boots
-86. Hear (straight) from the horse's mouth
-87. Read the room
-88. Chopped liver
+13. [hear (stg) through/ on the grapewine](https://www.theidioms.com/hear-on-the-grapevine/)
+14. [hit the hay](https://www.theidioms.com/hit-the-hay/)
+15. [have a rain check](https://www.theidioms.com/rain-check/)
+16. [take a rain check](https://www.theidioms.com/rain-check/)
+17. ice skating uphill
+18. rubber stamp
+19. [make hay while the suns shines](https://www.theidioms.com/make-hay-while-the-sun-shines/)
+20. rooting for you
+21. monkey's paw
+22. [to keep your eyes peeled](https://www.theidioms.com/keep-your-eyes-peeled/)
+23. I'll see myself out
+24. hook (rod), line and sinker
+25. to pig out
+26. blowing a raspberry
+27. [to speak off the cuff](https://www.theidioms.com/off-the-cuff/)
+28. swashbukling
+29. [When pigs fly](https://www.theidioms.com/when-pigs-fly/)
+30. [is down for the count](https://www.theidioms.com/down-for-the-count/)
+31. [to pigeonhole](https://www.theidioms.com/pigeonhole/)
+32. keep an eye out
+33. heap/s
+34. dress down
+35. smoking banana
+36. I am on the edge of my seat
+37. shake a leg
+38. [Shell out](https://www.theidioms.com/shell-out/)
+39. [pony up](https://www.theidioms.com/shell-out/)
+40. mustn't grumble
+41. off my tits
+42. [is on cloud nine](https://www.theidioms.com/cloud-nine/)
+43. keep someone on their toes
+44. go tits up
+45. [spill the beans](https://www.theidioms.com/spill-the-beans/)
+46. gonna get out of your hair
+47. [Miles to go before I sleep](https://www.theidioms.com/miles-to-go-before-i-sleep/)
+48. freeballing
+49. have itchy feet
+50. shirt coocking
+51. [skinny dip](https://idioms.thefreedictionary.com/skinny-dip)
+52. take five
+53. make a dent in something
+54. to excel in something
+55. gun shy
+56. give someone attitude
+57. have skin in the game
+58. that's a bad hill to die on
+59. hard nosed
+60. night cap
+61. I'll see myself out
+62. feeding the rat
+63. it's water under the bridge
+64. pass the buck
+65. hang ten
+66. Raising the roof
+67. I am winchester
+68. Run the gamut
+69. Wet your whistle
+70. To burn daylight
+71. To Fly off the handle
+72. Be gunning for someone
+73. Burn the midnight oil
+74. Clinging on (to) stg, smby
+75. Homebody
+76. (stg) went south
+77. Handle your liquor
+78. in for a penny / in for a pound
+79. Pull my finger out
+80. Jazz hands
+81. Twist my arms
+82. Fill the boots
+83. Nervous as a cat
+84. Rain on someone's parade
+85. Got to hit the head
+86. Ten-hut
+87. Cool your boots
+88. Hear (straight) from the horse's mouth
+89. Read the room
+90. Chopped liver
+91. 
