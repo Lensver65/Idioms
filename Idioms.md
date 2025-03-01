@@ -92,3 +92,5 @@
 90. Chopped liver
 91. Bated breath
 92. Arm's-length bodies
+93. [soup sandwich](https://idioms.thefreedictionary.com/soup+sandwich)
+94. [fubar](https://www.thefreedictionary.com/fubar)
