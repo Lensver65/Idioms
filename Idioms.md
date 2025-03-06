@@ -94,3 +94,8 @@
 92. Arm's-length bodies
 93. [soup sandwich](https://idioms.thefreedictionary.com/soup+sandwich)
 94. [fubar](https://www.thefreedictionary.com/fubar)
+95. ratfuck
+96. go out on a limb
+97. Get in a bear hug
+98. Hogwash
+99. Resting bitch face
